@@ -1,0 +1,3 @@
+# About Zinnie
+
+I AM LADY IN TECH AND A CHILD OF GRACE.
